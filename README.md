@@ -1,0 +1,1 @@
+# Mapa_climatico_Cusco
